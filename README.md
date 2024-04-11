@@ -1,22 +1,25 @@
-![giphy (4)](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/c904b630-ece3-4625-8d32-caef301af185)
 
 
  ➱ on Pony town!!
+ ![0d9dc0e014e173618adcf22fa8f47a9c](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/67d2b2d8-6687-40b7-aa54-69513ae6eb4c)
+
  
   ➱ hai, yall can call me soupcake or sillyspoon! (⁠☆⁠▽⁠☆⁠)
- ![giphy (2)](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/879ac693-8dd9-435c-8b5f-413a4463ef52)
-
-
-  
+ 
   ➱ my phone could be annoying sometimes so please don't mind because ot touches random things!
   
   ➱ Cuds and hidings, i feel completely comfortable with it ^_^
+!![c9fe258126714e0d6eea56b2159bb805](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/31efc69d-8a1c-4de6-8211-c28c2a499dfe)
+
+
   
   ➱ feel free to be my friend! im quite lonely
 
   ➱ i only friend people who are proactive in case you didn't know
 
-  ➱ im sorry if im not online much in pony town! i take a break of watching videos 
+  ➱ im sorry if im not online much in pony town! i take a break of watching videos
+![21cf1aa1b8a78e72298ece8fd75c26fe](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/b292b01d-e6e8-4ee3-8991-3b161278bb55)
+  
 
  ➱ my status's in pony town! :
  
@@ -31,7 +34,9 @@
 🎭- afk,idle or finding a roleplay
 
 ➱ anyways bye!! it was i hard time writing this hehe (⁠･⁠ω⁠･)
-![giphy (3)](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/54299084-928b-40f3-ac16-88a8f4725690)
+![68d05a972e65279044e6069e60945e6f](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/25bd160d-746f-4346-904f-2fecb8e88531)
+
+
 
 
 
