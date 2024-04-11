@@ -34,7 +34,8 @@
 🎭- afk,idle or finding a roleplay
 
 ➱ anyways bye!! it was i hard time writing this hehe (⁠･⁠ω⁠･)
-![68d05a972e65279044e6069e60945e6f](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/25bd160d-746f-4346-904f-2fecb8e88531)
+!![c265d5457bf2e9ba76a9c9bf8b58c031](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/12aadc8e-f0c3-4141-8583-8d50818b44f8)
+
 
 
 
