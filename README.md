@@ -4,7 +4,8 @@
  ➱ on Pony town!!
  
   ➱ hai, yall can call me soupcake or sillyspoon! (⁠☆⁠▽⁠☆⁠)
-  ![giphy (5)](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/c4adad47-ef12-43d1-823e-f2bc746f3651)
+ ![giphy (2)](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/879ac693-8dd9-435c-8b5f-413a4463ef52)
+
 
   
   ➱ my phone could be annoying sometimes so please don't mind because ot touches random things!
