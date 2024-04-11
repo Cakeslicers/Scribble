@@ -13,12 +13,14 @@
   ➱ im sorry if im not online much in pony town! i take a break of watching videos 
 
  ➱ my status's in pony town! :
+ 
  🟢- i don't always use, i use it usaully
 
  ⛔- quite busy,feel free to whisper! [i answer it late sometimes]
+ 
  🌙- i always use 
 
-💭- bored, wanna chat with someone
+🗨️- bored, wanna chat with someone
 
 🎭- afk,idle or finding a roleplay
 
