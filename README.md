@@ -21,6 +21,12 @@
   ➱ im sorry if im not online much in pony town! i take a break of watching videos
 ![21cf1aa1b8a78e72298ece8fd75c26fe](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/b292b01d-e6e8-4ee3-8991-3b161278bb55)
 
+ ➱ where to find me on pony town!
+ ![Screenshot_20240412-163935](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/b196a169-9e31-4c53-9baf-4376dcdef3af)
+
+im always underneath the docks! or inside of the cafe!
+
+
  ➱ DNI LIST!!
 
 - Zøøphiles, ped0philes, immature people, immature mika_kit fans, 5 yr olds,
