@@ -1,16 +1,3 @@
-![f75ef647814c745c36978dd2927c2319](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/23c5bcc0-b5d8-46e2-9fa8-262c83b0f6e2)
-
-
-
-
-
-
-
-
-
-
-
-
 
  ➱ on Pony town!!
  ![0d9dc0e014e173618adcf22fa8f47a9c](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/67d2b2d8-6687-40b7-aa54-69513ae6eb4c)
@@ -26,6 +13,8 @@
 
   
   ➱ feel free to be my friend! im quite lonely
+ ![9e92854f206152cc89c3a2d9fe5a5681](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/5dfc84a0-6fda-4e13-850c-177b7acfde88)
+
 
   ➱ i only friend people who are proactive in case you didn't know
 
@@ -35,6 +24,9 @@
  ➱ DNI LIST!!
 
 - Zøøphiles, ped0philes, immature people, immature mika_kit fans, 5 yr olds,
+  ![52d8d7d7dd20b858e02fd818ba06c53b](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/506fe6c8-ae20-47c3-bc6d-0df7fd6b4d1c)
+
+ 
 
  ➱ my status's in pony town! :
  
