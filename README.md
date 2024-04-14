@@ -26,6 +26,8 @@
 
 im always underneath the docks! or inside of the cafe!
 
+if im not there that means im chilling somewhere else or im just offline!
+
 
  ➱ DNI LIST!!
 
