@@ -1,3 +1,5 @@
+![5b9e39389880135e7e7a3fe3d0b7d188](https://github.com/SillyBuns/Sillyspoon/assets/166543687/e8c2f810-c585-46be-8737-243734f498a3)
+
 
  ➱ on Pony town!!
  ![0d9dc0e014e173618adcf22fa8f47a9c](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/67d2b2d8-6687-40b7-aa54-69513ae6eb4c)
@@ -18,7 +20,7 @@
 
   ➱ i only friend people who are proactive in case you didn't know
 
-  ➱ im sorry if im not online much in pony town! i take a break of watching videos
+  ➱ im sorry if im not online much in pony town! i take a break of my life
 ![21cf1aa1b8a78e72298ece8fd75c26fe](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/b292b01d-e6e8-4ee3-8991-3b161278bb55)
 
  ➱ where to find me on pony town!
@@ -31,7 +33,7 @@ if im not there that means im chilling somewhere else or im just offline!
 
  ➱ DNI LIST!!
 
-- Zøøphiles, ped0philes, immature people, immature mika_kit fans, 5 yr olds,
+- Zøøphiles, ped0philes, immature people,alpha gen, 5 yr olds,
   ![52d8d7d7dd20b858e02fd818ba06c53b](https://github.com/Sillyspoon/Sillyspoon/assets/166543687/506fe6c8-ae20-47c3-bc6d-0df7fd6b4d1c)
 
  
